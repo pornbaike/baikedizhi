@@ -1,15 +1,31 @@
 
 亲爱的朋友们好，由于大陆经常封闭色情百科域名，所以请记住我们永久最新地址邮箱哦。
+
 目前最新域名如下：
+
 pornbaike.com  （永久官方主域名，无法打开使用VPN即可正常打开）
+
+
 pornbk.cc      海外最新域名
-pornbk.xyz 大陆最新域名
-pornbaike.com 大陆最新域名2
-推荐免费翻墙软件：https://ant.aff001.me/c-1138/a-aQsSQ
+
+
+pornbk.xyz 
+大陆最新域名
+
+
+
+pornbaike.com 
+大陆最新域名2
+
+推荐免费翻墙软件：
+https://ant.aff001.me/c-1138/a-aQsSQ
 
 如遇见都无法打开，请关注我们官方推特账号：https://twitter.com/pornbaike 
+
 色情百科官方TG频道：https://t.me/pornbaike  
+
 永久发布页地址：https://github.com/pornbaike/baikedizhi （务必收藏，每次更新新的地址都在这里）
+
 
 常见问题
 
@@ -21,6 +37,7 @@ pornbaike.com 大陆最新域名2
 
 第二种办法： 修改DNS 防止无法播放 以及 无法访问
 等问题 
+
 
 
 
