@@ -1,20 +1,21 @@
+建议狼友Ctrl+D收藏本页面，本页随时更新最新地址，永远找到回家路
 
 亲爱的朋友们好，由于大陆经常封闭色情百科域名，所以请记住我们永久最新地址邮箱哦。
 
 目前最新域名如下：
 
-pornbaike.com  （永久官方主域名，无法打开使用VPN即可正常打开）
+https://pornbaike.com  （永久官方主域名，无法打开使用VPN即可正常打开）
 
 
-pornbk.cc      海外最新域名
+https://pornbk.cc      海外最新域名
 
 
-pornbk.xyz 
+https://pornbk.xyz 
 大陆最新域名
 
 
 
-pornbaike.com 
+https://pornbaike.com 
 大陆最新域名2
 
 推荐免费翻墙软件：
@@ -25,6 +26,12 @@ https://ant.aff001.me/c-1138/a-aQsSQ
 色情百科官方TG频道：https://t.me/pornbaike  
 
 永久发布页地址：https://github.com/pornbaike/baikedizhi （务必收藏，每次更新新的地址都在这里）
+
+
+回家的路邮箱找回：如果以上地址均不可用，索取最新地址,请发邮件到 pornbkdz@gmail.com 内容随意！
+
+
+发布页地址二：https://pornbk.neocities.org/
 
 
 常见问题
