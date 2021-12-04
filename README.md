@@ -10,13 +10,19 @@ https://pornbaike.com  （永久官方主域名，无法打开使用VPN即可正
 https://pornbk.cc      海外最新域名
 
 
+https://pornbk.top   大陆最新域名1
+
+
+
+https://baike.buzz/  大陆最新域名2
+
 https://pornbk.xyz 
-大陆最新域名
+大陆最新域名3
 
 
 
 https://pornbaike.com 
-大陆最新域名2
+大陆最新域名4
 
 推荐免费翻墙软件：
 https://ant.aff001.me/c-1138/a-aQsSQ
