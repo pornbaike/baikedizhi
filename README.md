@@ -4,10 +4,17 @@
 
 目前最新域名如下：
 
+2022年7月22日更新
+
+新增大陆域名：ygbh8.xyz
+
+
+新增中文域名：色情百科.com（直接浏览器输入打开即可）
+
+
 https://pornbaike.com  （永久官方主域名，无法打开使用VPN即可正常打开）
 
 
-https://pornbk.cc      海外最新域名
 
 
 https://pornbk.top   大陆最新域名1
@@ -25,7 +32,7 @@ https://pornbaike.com
 大陆最新域名4
 
 推荐免费翻墙软件：
-https://ant.aff001.me/c-1138/a-aQsSQ
+https://ant.aff004.pro/c-1138/a-aQsSQ
 
 如遇见都无法打开，请关注我们官方推特账号：https://twitter.com/pornbaike 
 
